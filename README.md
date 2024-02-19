@@ -1,2 +1,2 @@
-# Codes is being organized
+# Codes are being organized
 
